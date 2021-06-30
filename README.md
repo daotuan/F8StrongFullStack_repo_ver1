@@ -1,0 +1,1 @@
+# F8StrongFullStack_repo_ver1
